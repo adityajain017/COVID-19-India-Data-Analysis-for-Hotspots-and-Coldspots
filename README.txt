@@ -124,10 +124,8 @@ CONTACT DETAILS
 Submitted By: Aditya Jain; Roll: 20111004
 
 In case of any querry please contact on following:
-
-* Mobile: 8770743694, 9630511605 (Whatsapp)
-* Email:  adityaj20@iitk.ac.in, jainaditya017@outlook.com
+* Email:  jainaditya017@gmail.com
 
 
 
------------------------------------------------- THANK YOU ------------------------------------------------------------------------------------------------- 
+------------------------------------------------ THANK YOU ------------------------------------------------------------ 
